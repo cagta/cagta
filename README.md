@@ -8,6 +8,7 @@ Ordinary people have never been that lucky to access the information before toda
 
 All the years that I’ve spent within diﬀerent international teams I’ve had a chance to be a witness of it. Within this period I understand the diﬀerences of the nuances, learned to adopt and most importantly appreciated the diversity. This appreciation enhanced my vision and showed me the way of improve both my technical and soft skills. 
 
+If you are looking for someone who has 3+ year experience, who appreciates the diversity, who is the both seeker and the early adaptor of the new technologies, let’s have a talk.
 
 ---
 
@@ -58,8 +59,6 @@ All the years that I’ve spent within diﬀerent international teams I’ve had
 ---
 
 ### Did you check that ?
-
-If you are looking for someone who has 3+ year experience, who appreciates the diversity, who is the both seeker and the early adaptor of the new technologies, let’s have a talk.
 
 If you are curious reader like me you would like to follow my newsletter. In this newsletter, you will get a list of interesting links from me. You can expect to see different topics including technology, entrepreneurship, software engineering practices but not limited to those.
 
