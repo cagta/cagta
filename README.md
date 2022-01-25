@@ -25,9 +25,7 @@ If you are looking for someone who has 4+ year experience, who appreciates the d
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
 - [worth2watch [ENG]](https://www.youtube.com/watch?v=YQOrqAKKcUQ&list=PLTmfDkA8k73zxu9_7pGevL6OSpMg21Q8U)
-- [software [ENG]](https://www.youtube.com/watch?v=Ns__YpRneBA&list=PLTmfDkA8k73yOWuLROLvtYOI1ipj4PNi8)
 - [izlemeye değer [TR]](https://www.youtube.com/watch?v=g3HKiZ7Tb8s&list=PLTmfDkA8k73wZc8khMmmTsvSGBlAJ_SuV)
-- [yazılım [TR]](https://www.youtube.com/watch?v=ft1GrskUIlM&list=PLTmfDkA8k73wKzl4GnHOlTlaCPVDGsqdV)
 - [çağatayınmikrofonu [TR]](https://www.youtube.com/watch?v=zd-wHKcDb-w&list=PLTmfDkA8k73wKeBY-8JfKGwQ2YXu97_jy)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
