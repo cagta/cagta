@@ -6,7 +6,7 @@ Ordinary people have never been that lucky to access the information before toda
 
 All the years that I’ve spent within diﬀerent international teams I’ve had a chance to be a witness of it. Within this period I understand the diﬀerences of the nuances, learned to adopt and most importantly appreciated the diversity. This appreciation enhanced my vision and showed me the way of improve both my technical and soft skills. 
 
-If you are looking for someone who has 4+ year experience, who appreciates the diversity, who is the both seeker and the early adaptor of the new technologies, let’s have a talk.
+If you are looking for someone who has 6+ year experience, who appreciates the diversity, who is the both seeker and the early adaptor of the new technologies, let’s have a talk.
 
 
 [blog](https://cagataytanyildiz.com/) | [linkedin](https://linkedin.com/in/cagta) 
